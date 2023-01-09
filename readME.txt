@@ -36,5 +36,3 @@ Enjoy !
 🆘💭
 Any problem or any question ?
 Discord: https://discord.gg/RqYgGJqU5r
-
-https://dunb17ur4ymx4.cloudfront.net/packages/images/73595449ecbad0f717a52202230c8bf96d86c93c.png
