@@ -36,3 +36,6 @@ Enjoy !
 🆘💭
 Any problem or any question ?
 Discord: https://discord.gg/RqYgGJqU5r
+
+📸
+Pictures on Discord !
